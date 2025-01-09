@@ -18,7 +18,7 @@ Valor nutricional por cada 100 g
 ---
 
 # Cómo hacer natillas caseras
-Dificultad: Fáaaaaaaaaaaaaaaaaaaaaaaaaaaaaaacil
+Dificultad: Fácil
 Tiempo total: 30 m
 Elaboración: 5 m
 Cocción:25 m
