@@ -10,6 +10,12 @@ Azúcar: 75 g
 Almidón de maíz (maizena) 1 cucharada
 Galletas tipo María
 
+Valor nutricional por cada 100 g
+Energía 102 kcal 427 kJ
+Carbohidratos	15,4 g
+Grasas	2,9 g
+Proteínas	3,7 g
+
 ---
 
 # Cómo hacer natillas caseras
