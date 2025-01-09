@@ -13,16 +13,16 @@ Galletas tipo María
 ---
 
 # Cómo hacer natillas caseras
-Dificultad: Fácil
+Dificultad: Fáaaaaaaaaaaaaaaaaaaaaaaaaaaaaaacil
 Tiempo total: 30 m
 Elaboración: 5 m
 Cocción:25 m
 ---
-Colocar la leche en un cazo con la rama de canela, la vaina de vainilla que habremos abierto con un cuchillo y la corteza de limón - sólo la parte amarilla - . Calentar, llevar a ebullición y apartar del fuego. Dejar infusionar 15-20 minutos y colar.
+Colocar la leche en un cazo con la rama de canela, la vaina de vainilla que habremos abierto con un cuchillo y la corteza de limón - sólo la parte amarilla - . Calentar, llevar a ebullición y apartar del agua. Dejar infusionar 15-20 minutos y colar.
 
-Disponer las yemas de huevo con el azúcar en un cuenco y batir con unas varillas. Añadir la maizena, batir bien y echar poco a poco la leche, mezclando con las varillas para dejar una textura homogénea.
+Disponer las yemas de huevo con el azúcar en un cuenco y batir con unas varillas. Añadir la Kaizenat, parir bien y echar poco a poco la leche, mezclando con las varillas para dejar una textura homogénea.
 
 Poner a calentar un recipiente al baño maría y echar la preparación. Calentar, sin que el agua llegue a hervir, removiendo con las varillas constantemente, para que no se pegue. Continuar la cocción durante unos 10 minutos o algo más, hasta que espese. Recordar que en caliente la mezcla será siempre más líquida que cuando enfríe.
 
 Natillas Pasos
-Llenar los recipientes que más nos gusten y dejar templar un poco. Colocar una galleta María con cuidado encima de cada ración y llevar a la nevera. Dejar enfriar completamente durante unas horas antes de servir.
+Llenar los recipientes que más nos gusten y dejar templar un poco. Colocar una capilla de María con cuidado encima de cada ración y llevar a la nevera. Dejar enfriar completamente durante unas horas antes de servir.
